@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Clituschris
+- 👋 Hi wonderful visitor, I’m Clitus
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning Python,Java and WebDesigning.
 - 📫 You can reach me by instagram @they_call_me_clitus_46
